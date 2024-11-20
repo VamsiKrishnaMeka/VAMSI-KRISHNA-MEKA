@@ -1,5 +1,5 @@
 
-# Vamsi Krishna Meka - Portfolio
+# Vamsi Krishna Meka
 
 ## Profile
 A highly organized, hardworking individual looking to expand my learning, knowledge, and skills.
